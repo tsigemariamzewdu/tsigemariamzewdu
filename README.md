@@ -7,5 +7,5 @@
 
 ## 📫 Get in Touch
 - Email: tsigemariamzewdu20@gmail.com  
-- LinkedIn: [linkedin.com/in/tsigemariamzewdu](https://linkedin.com/in/tsigemariamzewdu)  
+- LinkedIn: [linkedin.com/in/tsigemariamzewdu](https://www.linkedin.com/in/tsigemariam-zewdu-600770266/) 
 - GitHub: [@tsigemariamzewdu](https://github.com/tsigemariamzewdu)
